@@ -1,4 +1,4 @@
--Hi,i'm christine Kanana 👋 Hi, I’m @Kananachris
+-Hi,i'm christine Kanana 
 Iam interested in creating amazing portifolios for different project
 I'm currently undertaking a Data Analytics Course
 - 🌱I look forward for productive support 
